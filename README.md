@@ -23,4 +23,5 @@ dadah :D
 by : Uno
 
 telegram : https://t.me/pyautoid
-Instagram : instagram.com/idejongkok
+Youtube : https://youtube.com/c/IdeJongkok
+Instagram : https://instagram.com/idejongkok
